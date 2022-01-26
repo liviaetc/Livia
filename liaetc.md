@@ -1,9 +1,15 @@
+![Image](https://i.pinimg.com/564x/6c/06/a5/6c06a56a4d822ad9c60d4aed2457482c.jpg) 
+##
 ## lia.mr.c
+Lívia Maria Carvalho Silva, 17 anos.
+
+Cursando o 3º ano E.M. e Curso técnico de Informatica para internet.
+
 ela/dela, corvinal, isfp, sagitário.
 ##
-**<3** livros, bandas e cantores antigos, arquitetura, <br> moda, plantinhas, fotografia, brechós, outono, etc, etc.
+**<3** Livros, bandas e cantores antigos, arquitetura, <br> moda, plantinhas, fotografia, brechós, outono, etc, etc.
 
-**</3** capitalismo, melão, injustiça, desorganização...
+**</3** Capitalismo, injustiça, desorganização...
 ##
  - [instagram](https://www.instagram.com/livia.etc/)
  - [twitter](https://twitter.com/home?lang=pt) 
@@ -12,10 +18,10 @@ ela/dela, corvinal, isfp, sagitário.
  ##
   ![Image](https://i.pinimg.com/564x/f3/09/6c/f3096cdfc132e515d26128851dddb21d.jpg)
 ##
-**stan:** louis tomlinson, shawn mendes, jão e lagum.
+**stan:** Louis Tomlinson, Shawn Mendes, Jão e Lagum.
 
-**support:** taylor swift, bella hadid e jovem dionisio.
+**support:** Taylor Swift, Bella Hadid e Jovem Dionisio.
 ##
-**na estante:** vbsa, mulherzinhas, morte no nilo, orgulho e preconceito,<br> o amor não é obvio, pjo, daisy jones and the six, quinze dias...
+**na estante:** Mulherzinhas, Morte no Nilo, Orgulho e Preconceito,<br> O Amor Não é Obvio, Pjo, Daisy Jones and The Six, Quinze Dias...
 
-**na telinha:** 10 coisas que eu odeio em você, atypical, dead poets <br>society, dark, everything sucks! , dickinson, rick and morty...
+**na telinha:** 10 Coisas Que Eu Odeio Em Você, Atypical, Dead Poets <br>Society, Dark, Everything Sucks! , Dickinson, Rick and Morty...
